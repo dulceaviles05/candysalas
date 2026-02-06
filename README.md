@@ -1,2 +1,2 @@
 # candysalas
-i love god
+i love God
